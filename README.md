@@ -2,7 +2,7 @@
 
 My name is **Viet**, I known as **Mavis** on ditial platform.
 
-I enjoy bringing anything I can imagine of to life.
+I enjoy bringing anything I can imagine to life.
 
 I am always eager to learn new things, especially in the fields that genuinely interest me.
 
