@@ -16,6 +16,16 @@ My skill include:
   - Music Production: FL Studio, Synthesizer V
 
 Contact me through my social media or email
+
+#### Other fact about me
+- Native language Vietnamese, speak fluent English, currently studying Polish
+- Play Piano, E-gutar, Drum
+- Favorite:
+  + Music: Porter Robinson - Goodbye to a World
+  + Movie: Interstellar
+  + Anime: Plastic Memories
+  + Game: Cyberpunk 2077
+  + Drink: Boba
 <!--
 **Mavis-Daemon/Mavis-Daemon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
